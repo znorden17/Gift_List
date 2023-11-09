@@ -85,5 +85,6 @@ Brilliant Stars is also weird, I think it's a super underrated set! It's some ve
 # Household Stuff
 
 1. SandCloud Towels
-    a. They have these like, hair ones? That look neat. 
-2. 
+
+   a. They have these like, hair ones? That look neat. 
+3. 
