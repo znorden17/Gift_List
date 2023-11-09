@@ -22,7 +22,7 @@ Anyone's game here. If you can find a booster bundle, then for sure those.
 Singles can be fond on Ebay or through https://www.tcgplayer.com/. If you decide to go down the singles path, definitely grab near-mint because I'm in it for the pretty collectible art. 
 
 When it comes to storing and wrapping: you're going to want to make sure it doesn't bend. Storing cards between card board and stuff? Always a good plan as long as there's a protective sleeve covering the card. Most shippers will keep things nice and clean for you. I would keep the cards like how they shipped them. 
-### Tag Team Cards
+#### Tag Team Cards
 1. if you get any of these then you're officially my most favoritest person every. 
 2. they're all pricey, sooooo. $25 to one is fantastic and greatly appreciated. 
 3. I would try to avoid the rainbow ones or the ones that look like 3D models. Definitely go for the pretty ones with the backgrounds.
@@ -32,12 +32,12 @@ Some to note: Umbreon & Darkrai, Garchomp & Giratina, the legendary bird trio (t
 
 I would definitely maybe, run this one by me. Since I won't have an updated list of which ones I have. 
 
-### Astral Radiance Singles
+#### Astral Radiance Singles
 1. [Hisuian Sneasler V](https://www.tcgplayer.com/product/272425/pokemon-swsh10-astral-radiance-hisuian-sneasler-v-alternate-full-art?xid=pifb6c59a2-9cdb-425e-b50f-858b1d6def9a&page=1&Language=English)
 2. [Origin Palkia V](https://www.tcgplayer.com/product/272419/pokemon-swsh10-astral-radiance-origin-forme-palkia-v-alternate-full-art?xid=pif9de7265-1dd6-47b6-9dfc-859f0855eea9&page=1&Language=English)
 3. [Origin Dialga V](https://www.tcgplayer.com/product/272427/pokemon-swsh10-astral-radiance-origin-forme-dialga-v-alternate-full-art?xid=pif9de7265-1dd6-47b6-9dfc-859f0855eea9&page=1&Language=English)
 
-### Silver Tempest Singles 
+#### Silver Tempest Singles 
 1. [Regidrago V](https://www.tcgplayer.com/product/451832/pokemon-swsh12-silver-tempest-regidrago-v-alternate-full-art?xid=pi7ed5778a-7a09-49ef-9f46-fe9bf420faa8&page=1&Language=English)
 
 Honorable Mentions: Blaziken V / Blaziken VMax
