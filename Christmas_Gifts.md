@@ -15,6 +15,5 @@
 | Kelsey| woobles frog | | $30 + shipping | 
 | Connor| fire emblem??? idunn is the favorite character | 
 | Prescott| fire emblem, paintbrushes for miniatures | 
-| 
 |Dad | | iPad | $80 | purchased, gifted
 |Jill | um. money for food? towels? | | 
