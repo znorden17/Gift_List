@@ -9,7 +9,6 @@
 | Ara | | ranni the witch doll | $35|ordered, to arrive|
 |Faith | books, horses, gift lists | | | 
 | Jess| books | | | 
-|
 |Ursula| chocolate | dark chocolate | 
 |Spencer| chocolate| milk chocolate| 
 | Steve| fly fishing, asked terry. clint has a variety pack | | 
