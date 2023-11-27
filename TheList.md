@@ -5,13 +5,24 @@ Second of all: Some of these are can be expensive but this is also a list for me
 
 # Pokemon 
 
+Right, so here's a list of Pokemon I think are neat: 
+
+1) Piplup / Empoleon
+2) Greninja
+3) Scizor
+4) Latios/Latias
+5) Garchomp
+6) Lucario
+
+I'm a big fan of the Sinnoh Region. (Less a fan of the remakes, but that's neither here nor there) 
+
 ### Bundles 
 
 #### Crown Zenith
 
 If you can find a booster bundle (Walmart) then I'd do that. Otherwise, the more packs for the price, the better.
 ETBs are expensive and I wouldn't do those. But the Zacian Zamenzenta will give you more packs and they're *roughly* the same price.
-For 2023 Black Friday there were these $25 things from Walmart? That had a solid amount of packs, there was a Pikachu. I do not recall anymore. 
+For 2023 Black Friday there were these $25 things from Walmart? That had a solid amount of packs, there was a Pikachu. I do not recall any other details; I'm sorry. 
 
 ##### Paradox Rift
 Definitely either individual packs or booster bundles. I wouldn't do the ETBs (Elite Trainer Boxes).
@@ -24,13 +35,18 @@ Anyone's game here. If you can find a booster bundle, then for sure those.
 Singles can be found on Ebay or through https://www.tcgplayer.com/. If you decide to go down the singles path, definitely grab near-mint because I'm in it for the pretty collectible art. 
 
 When it comes to storing and wrapping: you're going to want to make sure it doesn't bend. Storing cards between card board and stuff? Always a good plan as long as there's a protective sleeve covering the card. Most shippers will keep things nice and clean for you. I would keep the cards like how they shipped them. 
+
+I would definitely buy singles from card shops that have good reviews + a solid amount of items sold. Fakes make life ddificult for everyone and it's also very sad :( 
+
 ##### Tag Team Cards
 1. if you get any of these then you're officially my most favoritest person ever. 
 2. they're all pricey too. except for maybe the promo ones? those might be less pricey. 
-3. I would try to avoid the rainbow ones ([example](https://limitlesstcg.com/cards/CEC/214](https://limitlesstcg.com/cards/CEC/253)) or the ones that look like 3D models ([example](https://limitlesstcg.com/cards/CEC/214)). Definitely go for the pretty ones with the backgrounds.
+3. I would try to avoid the rainbow ones ([example](https://limitlesstcg.com/cards/CEC/253)) or the ones that look like 3D models ([example](https://limitlesstcg.com/cards/CEC/214)). Definitely go for the pretty ones with the backgrounds.
 https://limitlesstcg.com/cards?q=type%3Apokemon+is%3Atag-team&unique=prints&show=all
 
 Some to note: Umbreon & Darkrai, Garchomp & Giratina, the legendary bird trio (the one that looks like stained glass?), Mew & Mewtwo (there's one that looks Mew is giving Mewtwo a headache), and Espeon & Deoxys (Deoxys has it's "arms" out and there's this setting sun? Explosion? thing?).
+
+Oh! if you find the ones that have "promo" at the bottom? In like a star? Less expensive, still super cool :) 
 
 I would definitely maybe, run this one by me. Since I won't have an updated list of which ones I have. 
 
@@ -85,6 +101,8 @@ Brilliant Stars is also weird, I think it's a super underrated set! It's some ve
 4. https://www.pokemoncenter.com/product/705-97029/pokemon-tcg-rayquaza-among-the-stars-playmat
 
 # Household Stuff
+
+Yes, I do want towels. Thank you very much. Shut up. 
 
 1. SandCloud Towels
 
