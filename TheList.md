@@ -21,7 +21,8 @@ I'm a big fan of the Sinnoh Region. (Less a fan of the remakes, but that's neith
 #### Crown Zenith
 
 If you can find a booster bundle (Walmart) then I'd do that. Otherwise, the more packs for the price, the better.
-ETBs are expensive and I wouldn't do those. But the Zacian Zamenzenta will give you more packs and they're *roughly* the same price.
+ETBs are expensive and I wouldn't do those. They don't have many packs. So while I won't outright say I don't want one, I will say there are better options.
+The Zacian Zamenzenta will give you more packs and they're *roughly* the same price.
 For 2023 Black Friday there were these $25 things from Walmart? That had a solid amount of packs, there was a Pikachu. I do not recall any other details; I'm sorry. 
 
 ##### Paradox Rift
