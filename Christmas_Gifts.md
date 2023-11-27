@@ -1,7 +1,7 @@
 # Christmas Gifts 
 
-| Name | Ideas| Confirmed Gift| Price | Status |
-| --- | ------| ----------- | --- |--------|
+| Name | Ideas| Confirmed Gift|  Status |
+| --- | ------| ----------- | --------|
 |Jamie| bug Pokemon Etsy, or hear me out: Pokemon CAH | 
 | JP | collectible thing, tf2, portal|
 | Isaac | berserk, legos |
