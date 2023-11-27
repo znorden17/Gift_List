@@ -87,4 +87,5 @@ Brilliant Stars is also weird, I think it's a super underrated set! It's some ve
 1. SandCloud Towels
 
    a. They have these like, hair ones? That look neat. 
-3. 
+2. Coffee mugs
+ 
