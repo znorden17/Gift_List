@@ -27,7 +27,7 @@ When it comes to storing and wrapping: you're going to want to make sure it does
 ##### Tag Team Cards
 1. if you get any of these then you're officially my most favoritest person ever. 
 2. they're all pricey too. except for maybe the promo ones? those might be less pricey. 
-3. I would try to avoid the rainbow ones ([example]([https://limitlesstcg.com/cards/CEC/214](https://limitlesstcg.com/cards/CEC/253)) or the ones that look like 3D models ([example](https://limitlesstcg.com/cards/CEC/214)). Definitely go for the pretty ones with the backgrounds.
+3. I would try to avoid the rainbow ones ([example](https://limitlesstcg.com/cards/CEC/214](https://limitlesstcg.com/cards/CEC/253)) or the ones that look like 3D models ([example](https://limitlesstcg.com/cards/CEC/214)). Definitely go for the pretty ones with the backgrounds.
 https://limitlesstcg.com/cards?q=type%3Apokemon+is%3Atag-team&unique=prints&show=all
 
 Some to note: Umbreon & Darkrai, Garchomp & Giratina, the legendary bird trio (the one that looks like stained glass?), Mew & Mewtwo (there's one that looks Mew is giving Mewtwo a headache), and Espeon & Deoxys (Deoxys has it's "arms" out and there's this setting sun? Explosion? thing?).
