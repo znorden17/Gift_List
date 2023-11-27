@@ -1,3 +1,26 @@
+# GET AWAY IF YOU WOULD LIKE TO BE SURPRISED FOR GIFTS
+# I HAVE ADDED SO MANY CAUTIONARY NOTES AND WARNINGS. LEAVE ME ALONE.
+# IF YOU SPOIL IT FOR YOURSELF, IT'S YOUR OWN DAMN FAULT
+
+
+
+
+
+
+
+
+
+
+
+
+
+
+
+
+
+
+
+
 # Christmas Gifts 
 
 | Name | Ideas| Confirmed Gift|  Status |
