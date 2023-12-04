@@ -27,11 +27,11 @@
 | --- | ------| ----------- | --------|
 |Jamie| bug Pokemon Etsy, or hear me out: Pokemon CAH | 
 | JP | collectible thing, tf2, portal|
-| Isaac | berserk, legos |
+| Isaac | berserk, legos | mario mushroom 
 | Talene | | fox stuffed animal |purchased | 
 | Ara | | ranni the witch doll |purchased|
-|Faith | books, horses, gift lists | | purchased | 
-| Jess| books | | purchased | 
+|Faith | books, horses, gift lists | book | purchased | 
+| Jess| books | book | purchased | 
 |Ursula| chocolate | dark chocolate | 
 |Spencer| chocolate| milk chocolate| 
 | Steve| fly fishing, asked terry. clint has a variety pack | | 
