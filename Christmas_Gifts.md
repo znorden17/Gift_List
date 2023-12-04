@@ -28,7 +28,7 @@
 |Jamie| bug Pokemon Etsy, or hear me out: Pokemon CAH | 
 | JP | collectible thing, tf2, portal|
 | Isaac | berserk, legos |
-| Talene | | fox stuffed animal | |purchased | 
+| Talene | | fox stuffed animal |purchased | 
 | Ara | | ranni the witch doll |purchased|
 |Faith | books, horses, gift lists | | purchased | 
 | Jess| books | | purchased | 
