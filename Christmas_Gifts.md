@@ -25,7 +25,7 @@
 
 | Name | Ideas| Confirmed Gift|  Status |
 | --- | ------| ----------- | --------|
-|Jamie| bug Pokemon Etsy, or hear me out: Pokemon CAH | 
+|Jamie| bug Pokemon Etsy, or hear me out: Pokemon CAH | caterpie from etsy | purchased
 | JP | collectible thing, tf2, portal|
 | Isaac | berserk, legos | mario mushroom 
 | Talene | | fox stuffed animal |purchased | 
