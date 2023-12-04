@@ -29,14 +29,14 @@
 | JP | collectible thing, tf2, portal|
 | Isaac | berserk, legos |
 | Talene | | fox stuffed animal | |purchased | 
-| Ara | | ranni the witch doll |ordered, to arrive|
+| Ara | | ranni the witch doll |purchased|
 |Faith | books, horses, gift lists | | purchased | 
 | Jess| books | | purchased | 
 |Ursula| chocolate | dark chocolate | 
 |Spencer| chocolate| milk chocolate| 
 | Steve| fly fishing, asked terry. clint has a variety pack | | 
-| Kelsey| woobles frog | | 
-| Connor| fire emblem??? idunn is the favorite character | 
+| Kelsey| woobles frog | purchased | 
+| Connor|  | | | popcorn purchased|  
 | Prescott| fire emblem, paintbrushes for miniatures | 
 |Dad | | iPad |  | purchased, gifted
-|Jill | um. money for food? towels? | |
+|Jill | um. money for food? towels? mo | |
