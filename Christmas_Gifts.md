@@ -38,5 +38,5 @@
 | Kelsey| woobles frog | | purchased | 
 | Connor|  | | popcorn purchased|  
 | Prescott| fire emblem, paintbrushes for miniatures | 
-|Dad | | iPad |  | purchased, gifted
+|Dad | | iPad |  purchased, gifted
 |Jill | um. money for food? towels? mo | |
