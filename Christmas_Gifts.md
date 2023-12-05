@@ -26,7 +26,7 @@
 | Name | Ideas| Confirmed Gift|  Status |
 | --- | ------| ----------- | --------|
 |Jamie| bug Pokemon Etsy, or hear me out: Pokemon CAH | caterpie from etsy | purchased
-| JP | collectible thing, tf2, portal|
+| JP | collectible thing, tf2, portal| worked w/ jamie/ara to buy a portal2 figure | purchased
 | Isaac | berserk, legos | mario mushroom 
 | Talene | | fox stuffed animal |purchased | 
 | Ara | | ranni the witch doll |purchased|
