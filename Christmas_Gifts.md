@@ -37,6 +37,6 @@
 | Steve| fly fishing, asked terry. clint has a variety pack | | 
 | Kelsey| woobles frog | | purchased | 
 | Connor|  | | popcorn purchased|  
-| Prescott| fire emblem, paintbrushes for miniatures | purchased
+| Prescott| fire emblem, paintbrushes for miniatures | |purchased
 |Dad | | iPad |  purchased, gifted
 |Jill | um. money for food? towels? mo | |
